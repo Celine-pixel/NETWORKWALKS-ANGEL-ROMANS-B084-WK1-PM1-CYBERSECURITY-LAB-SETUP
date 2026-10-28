@@ -61,3 +61,5 @@ As I continue, I'll document what works, what doesn't, and what I learn from eac
 
 **Part of:** My Cybersecurity Internship  
 **Status:** In progress 🚀
+
+LinkedIn: www.linkedin.com/in/angel-romans-108555331 
